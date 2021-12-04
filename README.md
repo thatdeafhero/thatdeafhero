@@ -1,5 +1,15 @@
 ### Hi there 👋
 
+### :sparkles: 22 | Deaf+ POC Queer | INFP-T
+
+### :sparkling_heart: Pronouns: xe/xem/xyrs 
+
+### :star2: Fun fact: I love anime and drawing!
+
+### :revolving_hearts: linkedIn: https://www.linkedin.com/in/samantharbird/
+
+### 🌱 I’m currently learning ... How to be confident in myself :)
+
 <!--
 **thatdeafhero/thatdeafhero** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
