@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### :sparkles: 22 | Deaf+ POC Queer | INFP-T
+### :sparkles: 23 | Deaf+ POC Queer | INFP-T
 
 ### :sparkling_heart: Pronouns: xe/xem/xyrs 
 
